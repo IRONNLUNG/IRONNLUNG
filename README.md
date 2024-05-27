@@ -1,5 +1,12 @@
 ![croc](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/b662efff-b231-404f-98fa-bf77125dd8ed)
 
+
+
+
+
+
+
+
 c+h and ect is welcome
 uhjjhh... i love sniper
 
