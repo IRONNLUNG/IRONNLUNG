@@ -8,7 +8,7 @@
 
 i like a few things
 
-c+h and ect is welcome if ur from pt
+c+h and ect is welcome but if i move away i most likely want to be left alone ^_^
 
 uhjjhh... i love sniper
 
