@@ -1,4 +1,4 @@
-![croc](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/b662efff-b231-404f-98fa-bf77125dd8ed)
+![croc](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/c7b27ea5-3d51-4fbb-84a5-4b79918275cb)
 
 
 
