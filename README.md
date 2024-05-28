@@ -1,4 +1,4 @@
-![croc](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/c7b27ea5-3d51-4fbb-84a5-4b79918275cb)
+![dance](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/1083ea3c-589d-46cd-b28e-a5bbfa59c007)
 
 
 
@@ -12,4 +12,4 @@ c+h and ect is welcome but if i move away i most likely want to be left alone ^_
 
 uhjjhh... i love sniper
 
-![sni](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/6961f514-e5f4-4c4c-9bb4-d4b060cceffe)
+![dance](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/1083ea3c-589d-46cd-b28e-a5bbfa59c007)
