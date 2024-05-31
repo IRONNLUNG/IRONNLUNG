@@ -1,6 +1,3 @@
-![snipspy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/c85e6ac3-5265-4caf-a263-18c30f7edcce)
-
-
 
 i like a few things
 
