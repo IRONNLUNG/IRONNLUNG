@@ -1,8 +1,10 @@
 ![SEA](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/dae7cc33-e394-46ed-9110-cd162d98256d)
 
---
+.
 
 i like a few things
+
+.
 ![snipermain](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/1ce3526a-e0f4-4758-8185-558a880cc97c) (why wouldn't i be?)
 
 
