@@ -11,6 +11,7 @@ chronically online tf2, l4d2 and etc enthusiast
 if you spot me in pt:
 
 c+h and etc is welcome but if i move away i most likely want to be left alone ^_^
+
 i always sit by lamppost unless i'm dragged somewhere else or in party island
 
 sorry if i act like a freak...
