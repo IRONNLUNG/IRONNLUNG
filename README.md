@@ -21,4 +21,5 @@ sorry if i act like a freak...
 
 ![ss](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/717229ca-fd9d-4c09-8bef-25620784a45b) ![sns](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/b8f7ca61-dd92-44cc-9e26-5f053148b2af) ![jiggy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/a9cba2ff-4440-416d-9e12-c7ccc84f956d)
 
-![snipspy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/0af661d6-76ae-4a87-9ac8-34968876d615)
+![snipspy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/bc0d59ae-0113-441e-bdfe-975efdaf72ba)
+
