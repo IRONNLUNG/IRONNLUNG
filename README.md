@@ -1,5 +1,4 @@
-![SEA](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/dae7cc33-e394-46ed-9110-cd162d98256d)
-
+--------------- ![no1](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/0ef189df-ea4a-4fe9-afa2-c1cae01244f5) ---------------
 
 
 chronically online tf2, l4d2 and etc enthusiast
@@ -8,7 +7,7 @@ chronically online tf2, l4d2 and etc enthusiast
 
 --------------- ![snipermain](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/1ce3526a-e0f4-4758-8185-558a880cc97c) ---------------
 
-if you spot me in pt:
+# if you spot me in pt:
 
 c+h and etc is welcome but if i move away i most likely want to be left alone ^_^
 
