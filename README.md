@@ -15,6 +15,5 @@ i always sit by lamppost unless i'm dragged somewhere else or in party island
 sorry if i act like a freak...
 
 
-![snibadge](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/61218ea0-5c09-4760-965e-017708bfc103)![gayfighting](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/bf10ede9-972c-493a-9c92-c0755c148801)![spybadge](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/a191cb43-bfb5-4511-a2b1-4620550795f3)
-
---------------- ![ss](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/edef12a4-53fe-495e-9c70-f6c52d35db94) ---------------
+![sniperbadge](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/d17ea67e-2c1e-41eb-8498-9553db506623)![gayfighting](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/bf10ede9-972c-493a-9c92-c0755c148801)![spybadge](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/7b5ba415-46a9-4481-9edf-c1f6d644b577)
+---------- ![ss](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/717229ca-fd9d-4c09-8bef-25620784a45b) ![sns](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/b8f7ca61-dd92-44cc-9e26-5f053148b2af) ----------
