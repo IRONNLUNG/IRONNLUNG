@@ -5,8 +5,7 @@
 
 
 
-![uber](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/ec78ff09-6fcd-4ef4-8abb-3b522759f072)
-
+.
 pony town info:
 
 c+h and etc is welcome
@@ -24,3 +23,6 @@ most likely offtab/afk or whatever so w2i (whisper to interact)
 
 
 hi cohen :D ![jiggy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/a9cba2ff-4440-416d-9e12-c7ccc84f956d)
+
+![uber](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/ec78ff09-6fcd-4ef4-8abb-3b522759f072)
+
