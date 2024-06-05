@@ -22,7 +22,7 @@ most likely offtab/afk or whatever so w2i (whisper to interact)
 . ![sniper](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/90da2e0a-65bb-4e0f-871c-e3e38a739124)   .   ![spy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/da9d8679-806a-4c74-b589-7f8602b64c83) .
 
 
-hi cohen :D ![jiggy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/a9cba2ff-4440-416d-9e12-c7ccc84f956d)
+hellmo cohen one of my faovurite little friends hhuuehe :D ![jiggy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/a9cba2ff-4440-416d-9e12-c7ccc84f956d)
 
 ![uber](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/ec78ff09-6fcd-4ef4-8abb-3b522759f072)
 
