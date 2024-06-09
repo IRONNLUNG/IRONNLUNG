@@ -10,6 +10,3 @@ hellmo cohen one of my faovurite friends hhuuehe :D ![snug](https://github.com/M
 ![pixelsniper](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/f1427798-0fc8-4358-bae3-b31f9aa1be3a)![pixelspy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/d3424dce-872b-4503-bde3-13315032a961)
 
 ![hmm](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/9240d0c9-3a6b-4a56-88bc-daec332e178c)
-
-
-![bls](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/8de80555-b71a-484e-86d7-bbd73e0a7662)
