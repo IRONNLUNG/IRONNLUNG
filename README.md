@@ -1,4 +1,4 @@
-![huhh](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/1735449b-4b4e-48a7-a5ba-fe09f9de17de)
+![huhh](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/449a2430-bc5b-475f-bd94-9989e0e0a208)
 ![pixelsniper](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/f1427798-0fc8-4358-bae3-b31f9aa1be3a)![pixelspy](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/d3424dce-872b-4503-bde3-13315032a961)
 
 ![redarrow](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/dc96bac9-1b1c-4ddf-836e-84b642ba584e)
