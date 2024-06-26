@@ -13,7 +13,7 @@
 
 
 ![greyorb](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/0033e003-7d16-474d-904d-d69d6232135f)
-[pony town info!](https://ptma.carrd.co/)
+[pony town info!](https://rentry.org/yellowbellied)
 
 ( normally sitting w [cohen](https://github.com/twicetheshot) :D ![hug](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/c04032ce-25b6-41ad-ace4-0f9ed2506380))
 
