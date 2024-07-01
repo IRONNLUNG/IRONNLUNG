@@ -1,29 +1,22 @@
-![swirl1](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/97d6f6ff-90ed-45f9-bd35-7621415ac5e6)![feathers](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/dcdcf7c3-5325-41b8-98a4-0f0f7073c449)
+![caandle](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/104be42e-fb06-4a48-bf46-66c637268f75)![feathers](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/dcdcf7c3-5325-41b8-98a4-0f0f7073c449)
 
 
 
-![gay idk](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/8d37f552-76b0-45ef-a584-06d783402b12)
-![wing](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/a6df31b3-c0b0-41f3-8201-12dad8b2d940)
-![swirl2](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/61a42aaf-3f96-4122-b9a6-7ca6102d58ac)
+![ew](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/d4db456d-26a7-463c-bd02-33e7c06afb9a)
+![purple star](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/76ea3ec8-2d0a-4bbe-bbfe-96991f591d13)
+![caandle](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/a021b83b-08d1-4651-9183-77766a52518c)
 
- ![bloo2](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/ec6c1d3e-89ad-4854-8ee5-9a0837f127f0)
-![lyc](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/8075c1e0-5146-41d5-9772-ccca94d82d00)
-
-![devil](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/b3cce1b1-a696-4e4d-b8e3-036d3c323780)
+![d](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/e93a4551-d5e5-4f51-8423-5b506c1e6a44)![,m](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/65a3d2d3-b9bd-4e55-9eb8-4507aec818c2)
 
 
-![greyorb](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/0033e003-7d16-474d-904d-d69d6232135f)
+![dp](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/5712fb11-5520-4ac8-ae4d-80189964b1cf)
 [pony town info!](https://rentry.org/yellowbellied)
 
-( normally sitting w [cohen](https://github.com/twicetheshot) :D ![hug](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/c04032ce-25b6-41ad-ace4-0f9ed2506380))
+ [sign my retrospring!](https://retrospring.net/@MellowAmaryllis) ![lp](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/5fed9a1c-9401-4307-908b-9b62b6efd201)
 
- [sign my retrospring!](https://retrospring.net/@MellowAmaryllis)  ![redorb](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/768e0cb6-148a-40b5-8a13-993b28d0839f)
+ immediate responses aren't guaranteed
 
- i apologise if i don't respond immediately...
-![1](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/8cbf4712-628d-44c0-90d1-d121de46892b)![2](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/f648bdbd-ebff-44b7-95a4-cf030913a701)
+![stars](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/fbe8d4ac-25e4-40a4-be3b-fabbe883689c)
 
-![blackswirl](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/31ea44ec-feba-47d6-a765-13a8f1488680) 
-
-
-(hi spy ml ♡︎)
+hi [spy](https://github.com/twicetheshot) ml ♡︎
 
