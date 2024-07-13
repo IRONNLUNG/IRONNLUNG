@@ -1,21 +1,16 @@
+![-1](https://github.com/user-attachments/assets/0cc9eff2-9cc8-430e-a104-6841550f61a1)
 
 
 
-![p](https://github.com/MellowAmaryllis/MellowAmaryllis/assets/166118914/b73041eb-803d-42e7-be37-e5284bf0775f)
-![1](https://files.catbox.moe/jhquod.gif)![2](https://files.catbox.moe/92w2pg.gif)
+![0](https://github.com/user-attachments/assets/7989ea27-05c0-4983-be6d-f95fc1133dfd)
 
-![4](https://files.catbox.moe/929rto.gif)
-
-![5](https://files.catbox.moe/gnj1mr.png)
+![1](https://github.com/user-attachments/assets/142822dd-77e7-4a7e-8dd4-82d99d53c545)
 [pony town info!](https://rentry.org/yellowbellied)
 
-![3](https://files.catbox.moe/optuwl.gif)
+ [sign my retrospring!](https://retrospring.net/@MellowAmaryllis) ![2](https://github.com/user-attachments/assets/38d11114-93cb-4941-99ad-e775e16ce4fc)
 
- [sign my retrospring!](https://retrospring.net/@MellowAmaryllis) ![6](https://files.catbox.moe/n2tix4.png)
- 
- immediate responses aren't guaranteed
+<[spy](https://github.com/twicetheshot)3
 
-![3](https://files.catbox.moe/9669yw.gif)
+![3](https://github.com/user-attachments/assets/299363df-dcb8-4648-a0de-7a819df45898)
 
-hi [spy](https://github.com/twicetheshot) ml ♡︎
 
