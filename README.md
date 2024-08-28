@@ -1,15 +1,16 @@
-![-1](https://github.com/user-attachments/assets/0cc9eff2-9cc8-430e-a104-6841550f61a1)
+![](https://files.catbox.moe/dp3tv4.png)
+                 
 
-![0](https://github.com/user-attachments/assets/38d11114-93cb-4941-99ad-e775e16ce4fc)
-
-![1](https://github.com/user-attachments/assets/7989ea27-05c0-4983-be6d-f95fc1133dfd)
-
+　 　 　 　 　 　 　 　　  　 　 ![0](https://files.catbox.moe/gqgly4.png)
 
 
- ![2](https://github.com/user-attachments/assets/142822dd-77e7-4a7e-8dd4-82d99d53c545) [sign my atabook,](https://bushmansrules.atabook.org/) [or my retrospring!](https://retrospring.net/@MellowAmaryllis)
+![1](https://files.catbox.moe/p33hp7.gif)
 
+ 　　　　 　　　 　　　　　　![2](https://files.catbox.moe/l84ki6.png)
 
-![3](https://github.com/user-attachments/assets/299363df-dcb8-4648-a0de-7a819df45898)
+[![3](https://files.catbox.moe/fu72ik.png)](https://rentry.org/campervancruise)
+[![4](https://files.catbox.moe/63s8fl.png)](https://bushmansrules.atabook.org/)
+[![5](https://files.catbox.moe/fgqwi6.png)](https://retrospring.net/@MellowAmaryllis)
+[![6](https://files.catbox.moe/dvwfrc.png)](https://en.pronouns.page/@MellowAmaryllis)
 
-![4](https://github.com/user-attachments/assets/409b5575-6c6f-416f-8ce7-3189b262325b)
-
+![](https://files.catbox.moe/pj9t5t.png)
