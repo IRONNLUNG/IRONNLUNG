@@ -8,7 +8,7 @@
 
  　　　　 　　　 　　　　　　　![2](https://files.catbox.moe/l84ki6.png)
 
-[![3](https://files.catbox.moe/fu72ik.png)](https://rentry.org/campervancruise)
+[![3](https://files.catbox.moe/fu72ik.png)](https://rentry.co/clemenscove)
 [![4](https://files.catbox.moe/63s8fl.png)](https://bushmansrules.atabook.org/)
 [![5](https://files.catbox.moe/fgqwi6.png)](https://retrospring.net/@MellowAmaryllis)
 [![6](https://files.catbox.moe/dvwfrc.png)](https://en.pronouns.page/@MellowAmaryllis)
