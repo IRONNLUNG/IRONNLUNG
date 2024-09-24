@@ -1,16 +1,17 @@
 ![](https://files.catbox.moe/dp3tv4.png)
                  
 
-　 　 　 　 　 　 　 　　  　　 　 ![0](https://files.catbox.moe/gqgly4.png)
+![02](https://files.catbox.moe/kmgyec.png)
 
 
-![1](https://files.catbox.moe/p33hp7.gif)
+![](https://files.catbox.moe/ozxj13.png) ![](https://files.catbox.moe/h75dxl.gif)
 
- 　　　　 　　　 　　　　　　　![2](https://files.catbox.moe/l84ki6.png)
+[![3](https://files.catbox.moe/isagdx.png)](https://rentry.co/clemenscove)
 
-[![3](https://files.catbox.moe/fu72ik.png)](https://rentry.co/clemenscove)
-[![4](https://files.catbox.moe/63s8fl.png)](https://bushmansrules.atabook.org/)
-[![5](https://files.catbox.moe/fgqwi6.png)](https://retrospring.net/@MellowAmaryllis)
-[![6](https://files.catbox.moe/dvwfrc.png)](https://en.pronouns.page/@MellowAmaryllis)
+[![4](https://files.catbox.moe/0c0kt4.png)](https://bushmansrules.atabook.org/)
 
-![](https://files.catbox.moe/pj9t5t.png)
+[![5](https://files.catbox.moe/5bhwt5.png)](https://retrospring.net/@MellowAmaryllis)
+
+[![6](https://files.catbox.moe/j5mnlq.png)](https://en.pronouns.page/@MellowAmaryllis)
+
+![](https://files.catbox.moe/arg8g0.png)
